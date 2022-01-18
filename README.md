@@ -2,4 +2,5 @@ Tere,
 olen Egert.
 2003 aasta väljalase
 @egertkk insta
-egertkivi snap
+egertkivi snap,
+long live the chinese regime
